@@ -1,3 +1,3 @@
-# suyhmedu.github.io
-[suyhmedu.github.io](https://suyhmedu.github.io)
+# suyaib.github.io
+[suyaib.github.io](https://suyaib.github.io)
 
